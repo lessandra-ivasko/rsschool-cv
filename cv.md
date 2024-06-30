@@ -1,3 +1,4 @@
+![](sL6tueb4I9Y.jpg)
 1. Aleksandra Ivashko
 2. **phone number:** +7-916-453-98-91
 **e-mail:** lessandra.ivasko@gmail.com
